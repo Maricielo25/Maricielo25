@@ -14,7 +14,7 @@
 - Jugar voley en algunas ocasiones 🏐
 # Enlaces para contacto 
 ## No creo que me encuentren 🤣
-- Gmail:valverdequispemaricielo@gmail.com
+- Gmail:maricielovalverdequispe@gmail.com
 - Facebook: Maricielo Valverde 
 - Instagram:@Maricielo25
 # ![image](https://user-images.githubusercontent.com/91635845/135363772-540aaf63-12a4-433d-ac1f-4e56c25e73f0.png)
